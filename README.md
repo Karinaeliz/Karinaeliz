@@ -6,7 +6,7 @@
 
 - 📫 Como puedes contactarme **karina.eliz.fernandez@gmail.com**
 
-- 📄 Busco empleo en el área IT [www.linkedin.com/in/karina-fernandez23](www.linkedin.com/in/karina-fernandez23)
+- 📄 Busco empleo en el área IT [[www.linkedin.com/in/karina-fernandez23/ventas/](https://www.linkedin.com/in/karinafernandez-ventas/)
 
 <h3 align="left">Contactate conmigo:</h3>
 <p align="left">
